@@ -8,6 +8,7 @@ Coin Master has taken the mobile gaming world by storm, captivating millions wit
 https://cutt.ly/1eckOfg9
 <br>
 https://cutt.ly/1eckOfg9
+<br>
 </br>
 
 The Importance of Spins in Coin Master Spins are the lifeblood of Coin Master. They allow players to earn coins, attack opponents, and complete card collections. Without spins, progress in the game can stall, making it crucial for players to find ways to acquire them.
